@@ -1,1 +1,1 @@
-# varshithjannapala-Disease-Cured-by-Drinking-Water
+Disease-Cured-by-Drinking-Water
